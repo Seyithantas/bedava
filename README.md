@@ -1,0 +1,2 @@
+# bedava
+Yatırın abiler
